@@ -86,3 +86,4 @@ Continuar desenvolvendo minhas habilidades em tecnologia, construir projetos cad
   ⌛ <b>Aprendendo • Construindo • Evoluindo</b>
 </p>
 # teresamelsousa-lgtm-
+https://script.google.com/macros/s/AKfycbyLH_2V59Nd2MKLymWtg03XrdvZ1Ugk8f2EF55fRhlQG0VW7Fz7wWn55EXfZ2IN0ck4NA/exec
